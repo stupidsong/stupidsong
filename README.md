@@ -1,16 +1,15 @@
-## Hi there 👋
+<p align="center">
+  <img src="https://files.catbox.moe/yilo6h.png" alt="Description">
+</p>
 
-<!--
-**surfsahoy/surfsahoy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<p align="center">﹕⠀bigender⠀⠀◞⠀biromantic⠀﹕⠀⠀adhd⠀﹕⠀enfp ne - fi  ﹕</p>⠀⠀⠀⠀
+<p align="center">⠀<i>⠀◞◞⠀you⠀seem⠀pretty⠀sad⠀for
+  ⠀a⠀girl⠀so⠀in⠀love⠀⠀</i>⠀⠀</p>⠀
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  <p align="center">⠀hi!! my name is⠀ <b>svet⠀or⠀finn⠀or⠀ren</b>⠀</p>⠀⠀
+
+<p align="center">
+  <img src="https://files.catbox.moe/pfe9bp.png" alt="Description">
+</p>
+
