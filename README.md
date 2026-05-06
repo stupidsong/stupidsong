@@ -4,10 +4,15 @@
 
 
 <p align="center">﹕⠀bigender⠀⠀◞⠀biromantic⠀﹕⠀⠀adhd⠀﹕⠀enfp ne - fi  ﹕</p>⠀⠀⠀⠀
-<p align="center">⠀<i>⠀◞◞⠀you⠀seem⠀pretty⠀sad⠀for
-  ⠀a⠀girl⠀so⠀in⠀love⠀⠀</i>⠀⠀</p>⠀
+<p align="center">⠀<i>⠀◞◞⠀‘⠀you⠀seem⠀pretty⠀sad⠀for
+  ⠀a⠀girl⠀so⠀in⠀love⠀’⠀⠀</i>⠀⠀</p>⠀
 
-  <p align="center">⠀hi!! my name is⠀ <b>svet⠀or⠀finn⠀or⠀ren</b>⠀</p>⠀⠀
+<p align="center">⠀hi!! my name is⠀ <b>svet</b>⠀or⠀<b>finn</b>⠀or⠀<b>ren</b>⠀</p>⠀⠀
+<p align="center"> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ i play pony town often, and im usually seen around the docks in safe server 1.⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀if not, im probably around the mcyt / hermitcraft area⠀</p>⠀⠀⠀ 
+
+<p align="center"> feel free to add me on discord or to interact!⠀im always open to making new friends!!⠀</p>
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [my interests](#interests) ⠀⠀[boundaries](#boundaries)  
 
 <p align="center">
   <img src="https://files.catbox.moe/pfe9bp.png" alt="Description">
