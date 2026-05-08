@@ -12,7 +12,7 @@
 
 <p align="center"> feel free to add me on discord or to interact!⠀im always open to making new friends!!⠀</p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [my interests](github.com/surfsahoy/interests) ⠀⠀[boundaries](github.com/surfsahoy/boundaries)  
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [my interests](github.com/surfsahoy/interests) ⠀⠀[other info](github.com/surfsahoy/info)  
 
 <p align="center">
   <img src="https://files.catbox.moe/pfe9bp.png" alt="Description">
