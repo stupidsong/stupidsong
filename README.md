@@ -10,7 +10,7 @@
 <p align="center">⠀hi!! my name is⠀ <b>svet</b>⠀or⠀<b>finn</b>⠀or⠀<b>ren</b>⠀</p>⠀⠀
 <p align="center"> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ i play pony town often, and im usually seen around the docks in safe server 1.⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀if not, im probably around the mcyt / hermitcraft area⠀</p>⠀⠀⠀ 
 
-<p align="center"> feel free to add me on discord or to interact!⠀im always open to making new friends!!⠀</p>
+<p align="center"> feel free to add me on discord or to interact!!⠀</p>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [my interests](https://github.com/surfsahoy/interests) ⠀⠀[other info](https://github.com/surfsahoy/info)  
 
