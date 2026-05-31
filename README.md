@@ -12,7 +12,7 @@
 
 <p align="center"> feel free to add me on discord or to interact!!⠀</p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [my interests](https://github.com/M-HotWheels/interests) ⠀⠀[other info](https://github.com/M-HotWheels/info)  
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [my interests](https://github.com/lovefighted/interests) ⠀⠀[other info](https://github.com/lovefighted/info)  
 
 <p align="center">
   <img src="https://files.catbox.moe/pfe9bp.png" alt="Description">
