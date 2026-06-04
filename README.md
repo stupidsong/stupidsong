@@ -1,24 +1,23 @@
 <p align="center">
-  <img src="https://files.catbox.moe/yilo6h.png" alt="Description">
+  <img src="https://files.catbox.moe/fchmsc.png" alt="dumb ass called mike wheeler" width="550">
 </p>
 
 
 <p align="center">﹕⠀bigender⠀⠀◞⠀biromantic⠀﹕⠀⠀adhd⠀﹕⠀enfp ne - fi  ﹕</p>⠀⠀⠀⠀
-<p align="center">⠀<i>⠀◞◞⠀‘⠀you⠀seem⠀pretty⠀sad⠀for
-  ⠀a⠀girl⠀so⠀in⠀love⠀’⠀⠀</i>⠀⠀</p>⠀
+<p align="center">⠀<i>⠀◞◞⠀‘⠀she could have been a poet or she could have been a fool.⠀’⠀⠀</i>⠀⠀</p>⠀
 
 <p align="center">⠀hi!! my name is⠀ <b>svet</b>⠀or⠀<b>finn</b>⠀or⠀<b>ren</b>⠀</p>⠀⠀
-<p align="center"> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ i play pony town often, and im usually seen around the docks in safe server 1.⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀if not, im probably around the mcyt / hermitcraft area⠀</p>⠀⠀⠀ 
+<p align="center"> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ i play pony town often, so im usually seen around the docks in safe server 1.⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀if not, im probably around the mcyt area, bsd area, or library⠀</p>⠀⠀⠀ 
 
 <p align="center"> feel free to add me on discord or to interact!!⠀</p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [my interests](https://github.com/lovefighted/interests) ⠀⠀[other info](https://github.com/lovefighted/info)  
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
 
 <p align="center">
-  <img src="https://files.catbox.moe/pfe9bp.png" alt="Description">
+  <img src="https://files.catbox.moe/nc27rw.png" alt="Omg miwi dont look behind you there's some gay bitches who have an extreme fixation in yearning~~" width="550">
 </p>
 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[my interests](https://github.com/lovefighted/interests)   |⠀⠀[other info](https://github.com/lovefighted/info)⠀   |⠀⠀[wait sign my ata👀](https://madwise.atabook.org/)  
 
 
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![lovefighted](https://komarev.com/ghpvc/?username=surfsahoy&color=f0f0f0&style=plastic&label=anyway、don't、be、a、stranger!)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![lovefighted](https://komarev.com/ghpvc/?username=surfsahoy&color=f0f0f0&style=plastic&label=orders、taken﹕)
