@@ -6,7 +6,7 @@
 <p align="center">﹕⠀bigender⠀⠀◞⠀biromantic⠀﹕⠀⠀adhd⠀﹕⠀enfp ne - fi    ̣̣̣ ͜𓏫</p>⠀⠀⠀⠀
 <p align="center">⠀<i>⠀◞◞⠀‘⠀she could have been a poet or she could have been a fool.⠀’⠀⠀</i>⠀⠀</p>⠀
 
-<p align="center"> 𓎟𓎟⠀hi!! my name is⠀ <b>svet</b>⠀or⠀<b>finn</b>⠀or⠀<b>ren</b>⠀</p>⠀⠀
+<p align="center"> 𓎟𓎟⠀hi!! my name is⠀ <b>svet</b>⠀or⠀<b>finn</b>⠀or⠀<b>anth</b></b>⠀</p>⠀⠀
 <p align="center"> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⟡⟡⠀⠀ i play pony town often, so im usually seen around the docks in safe server 1.⠀◤⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◢⠀ ⠀if not, im probably around the mcyt area, bsd area, or library.</p>⠀⠀
 <p align="center"> ⠀◟ ͜ ̣̣̥ ͜. ⠀   i host once in a blue moon but im trying to be more consistent and 2 start hosting more⠀⠀</p>
 ⠀
