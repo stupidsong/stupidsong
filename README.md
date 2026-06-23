@@ -3,7 +3,7 @@
 </p>
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prns.cc](https://pronouns.cc/@madwise)   ︲⠀⠀[straw](https://madwised.straw.page/)⠀   ︲⠀⠀[ata⠀book](https://madwise.atabook.org/)  
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prns.cc](https://pronouns.cc/@madwise)   ︲⠀⠀[straw](https://madwised.straw.page/)⠀   ︲⠀⠀[ata⠀book](https://madwise.atabook.org/)  
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ꪆ⏝ ི⠀⠀⠀⠀⠀[help palestine](https://arab.org/click-to-help/palestine/)
 
 
